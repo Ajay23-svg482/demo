@@ -5,3 +5,9 @@ I am from coimbatore
 I have completed my schoolings in CMS
 I took CS Group in school
 But I am very bad at coding
+My father name is Rajesh
+He is professional photographer
+My mother name is shobana
+She is a home maker
+And I have a sister her name is ahalia
+She is studying 6th standard
