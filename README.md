@@ -11,3 +11,10 @@ My mother name is shobana
 She is a home maker
 And I have a sister her name is ahalia
 She is studying 6th standard
+My Idol is MAHENDRA SINGH DHONI
+he is my big inspiration 
+I like his captaincy and wicket keeping
+his ideas and thoughts were inspired
+he is all time great finisher
+I became his fan by seeing his helicopter shots
+to describe him in one line"GOAT OF WORLD CRICKET"
